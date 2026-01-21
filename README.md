@@ -29,6 +29,7 @@
       DNI: prohsippers/darkshippes anything of that sort, obvious DNIS, 12 and under, PEOPLE WHO SELF-DIAGNOSE THEIR MENTAL ISSUES GTFO
       
       thin ice: 13-14, dandys world fans(insufferable), forsaken fans, double yume's, trolls
+      
 <p align="center">
 <img width="282" height="311" alt="image" src="https://github.com/user-attachments/assets/01f8296d-7a0e-4223-9438-0d3c887b9cd4" />
 
@@ -36,10 +37,14 @@
 
 
 
+<p align="center">
+<img width="78" height="87" alt="image" src="https://github.com/user-attachments/assets/67507ca6-ad0e-4fb3-8fce-21dedcb5188a" />
+if this is you do not fucking interact with me
 
 
 
 
 
 
-STATICAPPLE/MURDERMEDIA ADVOCATE!!!! 
+
+
