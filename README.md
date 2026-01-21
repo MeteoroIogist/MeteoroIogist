@@ -38,8 +38,13 @@
 
 
 <p align="center">
+  <img width="300" height="87" alt="image" src="https://github.com/user-attachments/assets/e053917d-3608-4aa6-9626-4ebfe251b613" />
+
 <img width="78" height="87" alt="image" src="https://github.com/user-attachments/assets/67507ca6-ad0e-4fb3-8fce-21dedcb5188a" />
-if this is you do not fucking interact with me
+<p align="center">
+if you are one of these individuals do not fucking interact with me (getting help is free and refusing it is pathetic brochacho, get off the internet)
+<p align="center">
+openly admitting that you are a 'psychopath' when you arent even A LICK of diagnosed is insane in its self you little loser
 
 
 
