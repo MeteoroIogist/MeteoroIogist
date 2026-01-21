@@ -26,7 +26,7 @@
     <p align="center">
                                                          ↻ ◁ || ▷ ↺
       
-      DNI: prohsippers/darkshippes anything of that sort, obvious DNIS, 12 and under, PEOPLE WHO SELF-DIAGNOSE MENTAL ISSUES GTFO
+      DNI: prohsippers/darkshippes stuff of that sort, obvious DNIS, 12 and under, PEOPLE WHO SELF-DIAGNOSE MENTAL ISSUES GTFO
       
       thin ice: 13-14, dandys world fans(insufferable), forsaken fans, trolls
       
