@@ -23,7 +23,7 @@
  <p align="center">                                                              
 𝘃𝗼𝘅 𝗳𝗶𝗰𝘁𝗸𝗶𝗻
  <p align="center"> 
-𝘃𝗶𝗻𝗰𝗲𝗻𝘁 𝘆𝘂𝗺𝗲𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (full sharing!! ^^)
+𝘃𝗶𝗻𝗰𝗲𝗻𝘁 𝘆𝘂𝗺𝗲𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (non-sharing soz :( )
 
 
 <p align="center">
