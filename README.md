@@ -6,7 +6,7 @@
 ![blinkiesCafe-zl](https://github.com/user-attachments/assets/c0432101-807d-4533-941d-e6e57797b73a)
 #     
 <p align="center">
-<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/2b220834-d79f-481a-947b-6eb617ce1bc2" />
+<img width="300" height="400" alt="image" src="https://murdermedia565969850.neocities.org/image_2026-02-10_084212283-removebg-preview.png" />
 
 <p align="center">
                                                𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗼𝘅, 𝘃𝗶𝗻𝗰𝗲, 𝘃𝗶𝗻𝗻𝘆 𝗲𝘁𝗰
