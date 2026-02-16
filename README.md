@@ -28,9 +28,18 @@
 
 <p align="center">
                                                        ＢＲＩＧＨＴＥＲ  <p align="center">
-                                                     ▶︎ •၊၊||၊|။||||။‌‌‌‌|• 1:40
-    <p align="center">
-                                                         ↻ ◁ || ▷ ↺
+                                                    
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3153etrmxxnhlwtdj4i3q4z2bsci&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3153etrmxxnhlwtdj4i3q4z2bsci&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
+  </a>
+</p>
+
+
+
+
+                                                         
       
       DNI: prohsippers/darkshippes stuff of that sort, obvious DNIS, 12 and under, PPL WHO SELF-DIAGNOSE MENTAL ISSUES GTFO
       
