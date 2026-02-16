@@ -27,7 +27,7 @@
 
 
 <p align="center">
-                                                       ＢＲＩＧＨＴＥＲ  <p align="center">
+                                                       I HAVE STML. PLEASE be patient with me  <p align="center">
                                                     
 
 <p align="center">
