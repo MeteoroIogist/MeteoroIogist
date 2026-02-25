@@ -16,7 +16,7 @@
 <p align="center">
   STONER ALERTTT, PASS THE JOINTTT
 <p align="center">
-                                                      ⛧𝗲𝗻𝘁𝗽 , 𝗶𝗻𝘁𝗿𝗼𝘃𝗲𝗿𝘁.⛧
+                                                      ⛧𝗲𝗻𝘁𝗽 , 𝗶𝗻𝘁𝗿𝗼𝘃𝗲𝗿𝘁𝗲𝗱 𝗲𝘅𝘁𝗿𝗼𝘃𝗲𝗿𝘁.⛧ (kms)
 
  <p align="center">
                                                        𝗳𝗿𝗲𝗲𝗹𝘆 𝗰 + 𝗵/ 𝗿𝗽!
