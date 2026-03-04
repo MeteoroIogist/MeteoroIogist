@@ -19,7 +19,7 @@
                                                       ⛧𝗲𝗻𝘁𝗽 , 𝗶𝗻𝘁𝗿𝗼𝘃𝗲𝗿𝘁𝗲𝗱 𝗲𝘅𝘁𝗿𝗼𝘃𝗲𝗿𝘁.⛧ (kms)
 
  <p align="center">
-                                                       𝗳𝗿𝗲𝗲𝗹𝘆 𝗰 + 𝗵/ 𝗿𝗽!
+                                                       𝗳𝗿𝗲𝗲𝗹𝘆 𝗰 + 𝗵 !
  <p align="center">                                                              
 𝘃𝗼𝘅 𝗳𝗶𝗰𝘁𝗸𝗶𝗻
  <p align="center"> 
@@ -35,7 +35,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3153etrmxxnhlwtdj4i3q4z2bsci&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
-
+also im the #1 radioapple hater
 
 
 
@@ -43,7 +43,7 @@
       
       DNI: prohsippers/darkshippes stuff of that sort, obvious DNIS, 12 and under, PPL WHO SELF-DIAGNOSE MENTAL ISSUES GTFO
       
-      thin ice: 13-14, dandys world fans(insufferable), forsaken fans, trolls
+      thin ice: 13-14, dandys world fans(insufferable), forsaken fans, trolls, RADIOAPPLE FANS
       
 
 
