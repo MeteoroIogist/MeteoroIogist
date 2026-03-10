@@ -41,9 +41,9 @@ also im the #1 radioapple hater
 
                                                          
       
-      DNI: prohsippers/darkshippes stuff of that sort, obvious DNIS, 12 and under, PPL WHO SELF-DIAGNOSE MENTAL ISSUES GTFO
+      DNI: prohsippers/darkshippes stuff of that sort, obvious DNIS, 12 and under, voxvel, PPL WHO SELF-DIAGNOSE MENTAL ISSUES GTFO
       
-      thin ice: 13-14, dandys world fans(insufferable), forsaken fans, trolls, RADIOAPPLE FANS
+      thin ice: 13-14, dandys world fans(insufferable), forsaken fans, trolls, RADIOAPPLE FANS, polyvees......
       
 
 
