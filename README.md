@@ -4,9 +4,10 @@
 ![blinkiesCafe-6Y](https://github.com/user-attachments/assets/515a8aa6-e1e2-44a2-a83e-f0d1b63596ae)
 ![blinkiesCafe-KN](https://github.com/user-attachments/assets/c64979cf-e489-41f0-90b6-486eb0a92cb8)
 ![blinkiesCafe-zl](https://github.com/user-attachments/assets/c0432101-807d-4533-941d-e6e57797b73a)
+
 #     
 <p align="center">
-<img width="300" height="400" alt="image" src="https://murdermedia565969850.neocities.org/image_2026-02-10_084212283-removebg-preview.png" />
+<img width="400" height="600" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1481016719484125234/image_2026-03-10_155111672-removebg-preview.png?ex=69b1c7cd&is=69b0764d&hm=11fb0e6397ba598cca05ae8a64d16e7564d1ba25058235a9f644226eea5137ed&" />
 
 <p align="center">
                                                𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗼𝘅, 𝘃𝗶𝗻𝗰𝗲, 𝘃𝗶𝗻𝗻𝘆 𝗲𝘁𝗰
