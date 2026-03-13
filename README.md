@@ -7,10 +7,10 @@
 
 #     
 <p align="center">
-<img width="400" height="500" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482143581731819572/image_2026-03-13_182900623-removebg-preview.png?ex=69b5e146&is=69b48fc6&hm=a2a333163dcb5b6b95846afac06df3d2d128fc96fae5ec65f40cf445ee33c884&" />
+<img width="800" height="300" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482143581731819572/image_2026-03-13_182900623-removebg-preview.png?ex=69b5e146&is=69b48fc6&hm=a2a333163dcb5b6b95846afac06df3d2d128fc96fae5ec65f40cf445ee33c884&" />
   
 ###### VOX DRAWN BY MY LOVELY FRIEND @PENMOZN!!! go support hjehehgahge
-###### i dont know what other images to put here so </3
+###### streeetched vox he needed to streeeeeetch
 <p align="center">
                                                𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗼𝘅, 𝘃𝗶𝗻𝗰𝗲, 𝘃𝗶𝗻𝗻𝘆 𝗲𝘁𝗰
 <p align="center">
