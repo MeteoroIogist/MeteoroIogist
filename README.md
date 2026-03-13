@@ -10,6 +10,7 @@
 <img width="300" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482105754675843304/image_2026-03-13_155832101-removebg-preview.png?ex=69b5be0c&is=69b46c8c&hm=b8c761d00f36a9a8cd31ac0ea8fadd1e64c6b2f9c23a3f2f45c4c32b9009a21d&" />
   
 ###### VOX DRAWN BY MY LOVELY FRIEND @PENMOZN!!! go support hjehehgahge
+###### i dont know what other images to put here so </3
 <p align="center">
                                                𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗼𝘅, 𝘃𝗶𝗻𝗰𝗲, 𝘃𝗶𝗻𝗻𝘆 𝗲𝘁𝗰
 <p align="center">
