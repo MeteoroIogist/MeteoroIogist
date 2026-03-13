@@ -7,7 +7,7 @@
 
 #     
 <p align="center">
-<img width="300" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482105754675843304/image_2026-03-13_155832101-removebg-preview.png?ex=69b5be0c&is=69b46c8c&hm=b8c761d00f36a9a8cd31ac0ea8fadd1e64c6b2f9c23a3f2f45c4c32b9009a21d&" />
+<img width="400" height="500" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482143581731819572/image_2026-03-13_182900623-removebg-preview.png?ex=69b5e146&is=69b48fc6&hm=a2a333163dcb5b6b95846afac06df3d2d128fc96fae5ec65f40cf445ee33c884&" />
   
 ###### VOX DRAWN BY MY LOVELY FRIEND @PENMOZN!!! go support hjehehgahge
 ###### i dont know what other images to put here so </3
