@@ -54,19 +54,17 @@ also im the #1 radioapple hater
 
 
 
+
+any of the following under this text, do not come near me or my friends ^^
 <p align="center">
+<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276680495009934/image.png?ex=69b65d3b&is=69b50bbb&hm=3e9c9db248721867b2a3b2491a53fe70a93ffba455c558c57f5bc6152fcfa9f3&" />
+
+<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276680792932433/image.png?ex=69b65d3c&is=69b50bbc&hm=8ddaf27b5afc755f08c427ce4f8b87b3a6b01df6bbca991eb4ad0735ad8f2bfe&" />
+
+<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276681057042514/image.png?ex=69b65d3c&is=69b50bbc&hm=9e083371ac3884f2e75b0b28c91292e5d8f72341a1fc04aaa36dfc487977cc31&" />
+
+<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482278778221760645/image.png?ex=69b65f30&is=69b50db0&hm=6d0f676b07d7b87fe7ae2f93e2403489fcb52e1b1073866e3dba9d0f5ddc050b&" />
+
   <img width="300" height="87" alt="image" src="https://github.com/user-attachments/assets/e053917d-3608-4aa6-9626-4ebfe251b613" />
 
 <img width="78" height="87" alt="image" src="https://github.com/user-attachments/assets/67507ca6-ad0e-4fb3-8fce-21dedcb5188a" />
-<p align="center">
-if you are one of these individuals do not fucking interact with me (getting help is free and refusing it is pathetic brochacho, get off the internet)
-<p align="center">
-openly admitting that you are a 'psychopath' when you arent even A LICK of diagnosed is insane in its self you little loser
-
-
-
-
-
-
-
-
