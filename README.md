@@ -18,7 +18,7 @@
 <p align="center">
                                                𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗼𝘅, 𝘃𝗶𝗻𝗰𝗲, 𝘃𝗶𝗻𝗻𝘆 𝗲𝘁𝗰
 <p align="center">
-                                                           𝗮𝗻𝘆 𝗽𝗿𝗻𝘀
+                                                           he/they/itttt
 
 <p align="center">
   STONER ALERTTT, PASS THE JOINTTT
