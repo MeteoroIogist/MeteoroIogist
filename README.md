@@ -4,6 +4,10 @@
 ![blinkiesCafe-6Y](https://github.com/user-attachments/assets/515a8aa6-e1e2-44a2-a83e-f0d1b63596ae)
 ![blinkiesCafe-KN](https://github.com/user-attachments/assets/c64979cf-e489-41f0-90b6-486eb0a92cb8)
 ![blinkiesCafe-zl](https://github.com/user-attachments/assets/c0432101-807d-4533-941d-e6e57797b73a)
+![blinkiesCafe-zl](https://cdn.discordapp.com/attachments/1381391098571657318/1481019089139929128/blinkiesCafe-Ev.gif?ex=69b5be82&is=69b46d02&hm=cd0abd9e2664805c635f52a7de889fbf9eb1686d6b3847f3e35ed48bf7bfb662&)
+![blinkiesCafe-zl](https://cdn.discordapp.com/attachments/1381391098571657318/1481019090041700362/blinkiesCafe-RO.gif?ex=69b5be83&is=69b46d03&hm=93db8f337e9d055c0b23cb4faaa450046a3854a00d77e8b1e19414d9117d07fe&)
+![blinkiesCafe-zl](https://cdn.discordapp.com/attachments/1381391098571657318/1482293502195794092/blinkiesCafe-G0.gif?ex=69b66ce6&is=69b51b66&hm=bdf2723958f1782f3ddbad6409a608e03af1e3bf8f86d75eac86e17360a2a4d5&)
+![blinkiesCafe-zl](https://cdn.discordapp.com/attachments/1381391098571657318/1482293502640521339/blinkiesCafe-v5.gif?ex=69b66ce6&is=69b51b66&hm=632d5af2225816432bd19e843d796a2350a464b33a6b3ecd48f68cb2e90a38cb&)
 
 #     
 <p align="center">
