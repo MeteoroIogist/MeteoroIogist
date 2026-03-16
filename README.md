@@ -72,3 +72,5 @@ any of the following under this text, do not come near me or my friends ^^
   <img width="300" height="87" alt="image" src="https://github.com/user-attachments/assets/e053917d-3608-4aa6-9626-4ebfe251b613" />
 
 <img width="78" height="87" alt="image" src="https://github.com/user-attachments/assets/67507ca6-ad0e-4fb3-8fce-21dedcb5188a" />
+
+<img width="300" height="100" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482901742998913025/image.png?ex=69b8a35e&is=69b751de&hm=456f4f273df205c5a9937d4d971dfa7503aa082e7d2a664f8bfd35806f82f4bc&" />
