@@ -77,3 +77,5 @@ any of the following under this text, do not come near me or my friends ^^
   <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1483282803578765443/image.png?ex=69ba0642&is=69b8b4c2&hm=a12bc7bfdf8c822ef3ca8b5523d23db791d33efd82991a3caa2459de38fd9f71&" />
   
 the lucifer is transphobic, the alastor and stolas/al are homophobic & this group as a whole argues and fights with the hazbin area EVERY. SINGLE. DAY. Always accusing people of stealing/copying. @/ ticklemehomo also uses/sends death threats during disputes.
+
+will/martin and the vox both proudly state they are insane WITHOUT a diagnoses, martin even has/had a whole page talking about it, openly stating he has hurt animals and potentially people. they talked about sensitive topics in public KNOWING people were uncomfortable with it.
