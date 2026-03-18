@@ -75,7 +75,9 @@ any of the following under this text, do not come near me or my friends ^^
 <img width="300" height="100" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482901742998913025/image.png?ex=69b8a35e&is=69b751de&hm=456f4f273df205c5a9937d4d971dfa7503aa082e7d2a664f8bfd35806f82f4bc&" />
 
   <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1483282803578765443/image.png?ex=69ba0642&is=69b8b4c2&hm=a12bc7bfdf8c822ef3ca8b5523d23db791d33efd82991a3caa2459de38fd9f71&" />
-  
+
+   <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1483689304910991513/image.png?ex=69bb80d7&is=69ba2f57&hm=907565c0ec5c22b284d1730ac6a834bdc559f703d24bb1d9484e9b35468e7859&" />
+   
 the lucifer is transphobic, the alastor and stolas/al are homophobic & this group as a whole argues and fights with the hazbin area EVERY. SINGLE. DAY. Always accusing people of stealing/copying. @/ ticklemehomo also uses/sends death threats during disputes.
 
 
