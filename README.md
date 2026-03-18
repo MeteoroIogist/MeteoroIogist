@@ -58,31 +58,20 @@ also im the #1 radioapple hater
 
 
 
-any of the following under this text, INTERACT WITH CAUTION towards me or my friends ^^
+any of the following under this text, DNI with me or my friends ^^
 <p align="center">
 <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276680495009934/image.png?ex=69b65d3b&is=69b50bbb&hm=3e9c9db248721867b2a3b2491a53fe70a93ffba455c558c57f5bc6152fcfa9f3&" />
-
-<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276680792932433/image.png?ex=69b65d3c&is=69b50bbc&hm=8ddaf27b5afc755f08c427ce4f8b87b3a6b01df6bbca991eb4ad0735ad8f2bfe&" />
-
-<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276681057042514/image.png?ex=69b65d3c&is=69b50bbc&hm=9e083371ac3884f2e75b0b28c91292e5d8f72341a1fc04aaa36dfc487977cc31&" />
 
 <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482278778221760645/image.png?ex=69b65f30&is=69b50db0&hm=6d0f676b07d7b87fe7ae2f93e2403489fcb52e1b1073866e3dba9d0f5ddc050b&" />
 
   <img width="300" height="87" alt="image" src="https://github.com/user-attachments/assets/e053917d-3608-4aa6-9626-4ebfe251b613" />
 
-<img width="78" height="87" alt="image" src="https://github.com/user-attachments/assets/67507ca6-ad0e-4fb3-8fce-21dedcb5188a" />
-
-<img width="300" height="100" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482901742998913025/image.png?ex=69b8a35e&is=69b751de&hm=456f4f273df205c5a9937d4d971dfa7503aa082e7d2a664f8bfd35806f82f4bc&" />
-
   <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1483282803578765443/image.png?ex=69ba0642&is=69b8b4c2&hm=a12bc7bfdf8c822ef3ca8b5523d23db791d33efd82991a3caa2459de38fd9f71&" />
-
-   <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1483689304910991513/image.png?ex=69bb80d7&is=69ba2f57&hm=907565c0ec5c22b284d1730ac6a834bdc559f703d24bb1d9484e9b35468e7859&" />
    
-the lucifer is spits transphobic claims, the alastor and stolas/al are being homophobic & this group as a whole argues and fights with the hazbin area EVERY. SINGLE. DAY. Always accusing people of stealing/copying. @/ ticklemehomo also uses/sends death threats during disputes.
-###### ty for this group for helping with an inappropriate 11 yr old bothering me and my friends. this does not mean I like you but it is acknowledgment that you know common sense. ^
+the alastor has been homophobic & argues and fights with the hazbin area EVERY. SINGLE. DAY. Always accusing people of stealing/copying. also uses/sends death threats during disputes.
 
- ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠᅠ
-will/martin and the vox both proudly state they are insane WITHOUT a diagnoses, martin even has/had a whole page talking about it, openly stating he has hurt animals and potentially people. they talked about sensitive topics in public KNOWING people were uncomfortable with it.
+ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠ ᅠᅠᅠ
+will/martin proudly states that they are insane WITHOUT a diagnoses, martin even has/had a whole page talking about it, openly stating he has hurt animals and potentially people. talked about sensitive topics in public KNOWING people were uncomfortable with it.
 
 
 
