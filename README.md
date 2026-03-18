@@ -58,7 +58,7 @@ also im the #1 radioapple hater
 
 
 
-any of the following under this text, do not come near me or my friends ^^
+any of the following under this text, INTERACT WITH CAUTION towards me or my friends ^^
 <p align="center">
 <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276680495009934/image.png?ex=69b65d3b&is=69b50bbb&hm=3e9c9db248721867b2a3b2491a53fe70a93ffba455c558c57f5bc6152fcfa9f3&" />
 
