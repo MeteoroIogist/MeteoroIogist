@@ -17,10 +17,10 @@
 <p align="center">
                                                𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗼𝘅, 𝘃𝗶𝗻𝗰𝗲, 𝘃𝗶𝗻𝗻𝘆 𝗲𝘁𝗰
 <p align="center">
-                                                           he/they/itttt
+                                                           𝗵𝗲/𝘁𝗵𝗲𝘆/𝗶𝘁𝘁𝘁𝘁
 
 <p align="center">
-  STONER ALERTTT, PASS THE JOINTTT
+  𝗦𝗧𝗢𝗡𝗘𝗥 𝗔𝗟𝗘𝗥𝗧𝗧𝗧, 𝗣𝗔𝗦𝗦 𝗧𝗛𝗘 𝗝𝗢𝗜𝗡𝗧𝗧𝗧
 <p align="center">
                                                       ⛧𝗲𝗻𝘁𝗽 , 𝗶𝗻𝘁𝗿𝗼𝘃𝗲𝗿𝘁𝗲𝗱 𝗲𝘅𝘁𝗿𝗼𝘃𝗲𝗿𝘁.⛧ (kms)
 
@@ -29,11 +29,11 @@
  <p align="center">                                                              
 𝘃𝗼𝘅 𝗳𝗶𝗰𝘁𝗸𝗶𝗻
  <p align="center"> 
-𝘃𝗶𝗻𝗰𝗲𝗻𝘁 𝘆𝘂𝗺𝗲𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (non-sharing soz :( )
+𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝗰𝗲𝗰𝗶𝗹, 𝘁𝗼𝗻𝘆, 𝘀𝘂𝗲 𝘀𝘁𝗼𝗿𝗺 𝘆𝘂𝗺𝗲𝘀𝗵𝗶𝗽𝗽𝗲𝗿 (all non-sharing soz :( )
 
 
 <p align="center">
-                                                       I HAVE STML. PLEASE be patient with me  <p align="center">
+                                                       𝗜 𝗛𝗔𝗩𝗘 𝗦𝗧𝗠𝗟. 𝗣𝗟𝗘𝗔𝗦𝗘 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲  <p align="center">
                                                     
 
 <p align="center">
@@ -41,7 +41,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3153etrmxxnhlwtdj4i3q4z2bsci&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
-also im the #1 radioapple hater
+𝐚𝐥𝐬𝐨 𝐢𝐦 𝐭𝐡𝐞 #𝟏 𝐫𝐚𝐝𝐢𝐨𝐚𝐩𝐩𝐥𝐞 𝐡𝐚𝐭𝐞𝐫
 
 
 
