@@ -11,7 +11,7 @@
 
 #     
 <p align="center">
-<img width="700" height="500" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247366/1482941855514628096/image-removebg-preview_6.png?ex=69b8c8ba&is=69b7773a&hm=5b065b157b758b91bbc64577ef31341dbb85e66669548385a9ab970144b6bbe0&" />
+<img width="300" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1487701996046913556/732a53f32f095f980b18c97e2705cce8-removebg-preview.png?ex=69ca19f4&is=69c8c874&hm=8feb083592601838be51ffa05f11133e2e83f4e136f5deb0ca0a66b45c99ef98&" />
   
 ###### i cant stop fucking changing my profiles </3
 <p align="center">
