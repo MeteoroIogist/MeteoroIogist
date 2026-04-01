@@ -13,7 +13,7 @@
 <p align="center">
 <img width="300" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1487701996046913556/732a53f32f095f980b18c97e2705cce8-removebg-preview.png?ex=69ca19f4&is=69c8c874&hm=8feb083592601838be51ffa05f11133e2e83f4e136f5deb0ca0a66b45c99ef98&" />
   
-###### i cant stop fucking changing my profiles </3
+###### heres my beautiful strawpage https://vincentwhittmanuh.straw.page
 <p align="center">
                                                𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗼𝘅, 𝘃𝗶𝗻𝗰𝗲, 𝘃𝗶𝗻𝗻𝘆 𝗲𝘁𝗰
 <p align="center">
