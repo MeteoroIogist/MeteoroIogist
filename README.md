@@ -11,7 +11,7 @@
 
 #     
 <p align="center">
-<img width="300" height="400" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1487701996046913556/732a53f32f095f980b18c97e2705cce8-removebg-preview.png?ex=69ca19f4&is=69c8c874&hm=8feb083592601838be51ffa05f11133e2e83f4e136f5deb0ca0a66b45c99ef98&" />
+<img width="700" height="600" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482465673492959273/image.png?ex=69d4b6ff&is=69d3657f&hm=63ee3ac8b3aa3e0f8c40e70b29036c74bbcb6628f566f1968d82d45617ecca85&" />
   
 ###### heres my beautiful strawpage https://vincentwhittmanuh.straw.page
 <p align="center">
@@ -41,6 +41,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3153etrmxxnhlwtdj4i3q4z2bsci&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
+TY MOZZ FOR ALASTOR PONY ILY TWIN TYTY
 𝐚𝐥𝐬𝐨 𝐢𝐦 𝐭𝐡𝐞 #𝟏 𝐫𝐚𝐝𝐢𝐨𝐚𝐩𝐩𝐥𝐞 𝐡𝐚𝐭𝐞𝐫
 
 
