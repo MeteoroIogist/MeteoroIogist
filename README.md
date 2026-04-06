@@ -61,13 +61,13 @@ TY MOZZ FOR ALASTOR PONY ILY TWIN TYTY
 
 any of the following under this text, DNI with me or my friends ^^
 <p align="center">
-<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482276680495009934/image.png?ex=69b65d3b&is=69b50bbb&hm=3e9c9db248721867b2a3b2491a53fe70a93ffba455c558c57f5bc6152fcfa9f3&" />
+<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482278247759872120/image.png?ex=69d4b131&is=69d35fb1&hm=833f837a2ab7e1c0da8094943d1ea16f2f38872edfb2c3c76ab2256e5080585f&" />
 
-<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1482278778221760645/image.png?ex=69b65f30&is=69b50db0&hm=6d0f676b07d7b87fe7ae2f93e2403489fcb52e1b1073866e3dba9d0f5ddc050b&" />
+<img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1489518824977072220/image.png?ex=69d4aa81&is=69d35901&hm=6ee2d365e231f72271d66430893760de72f290a949bef6b61f336e5fc732c72f&" />
 
   <img width="300" height="87" alt="image" src="https://github.com/user-attachments/assets/e053917d-3608-4aa6-9626-4ebfe251b613" />
 
-  <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1483282803578765443/image.png?ex=69ba0642&is=69b8b4c2&hm=a12bc7bfdf8c822ef3ca8b5523d23db791d33efd82991a3caa2459de38fd9f71&" />
+  <img width="300" height="87" alt="image" src="https://cdn.discordapp.com/attachments/1381391098571657318/1489518667317117003/image.png?ex=69d4aa5c&is=69d358dc&hm=f7862626af781324aafa16494b5b45b041623228ce5e075dd7107818aea55579&" />
    
 the alastor has been homophobic & argues and fights with the hazbin area EVERY. SINGLE. DAY. Always accusing people of stealing/copying. also uses/sends death threats during disputes.
 
