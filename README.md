@@ -11,7 +11,7 @@
 
 #     
 <p align="center">
-<img width="700" height="600" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482465673492959273/image.png?ex=69d4b6ff&is=69d3657f&hm=63ee3ac8b3aa3e0f8c40e70b29036c74bbcb6628f566f1968d82d45617ecca85&" />
+<img width="700" height="600" alt="image" src="https://cdn.discordapp.com/attachments/1463329837992247365/1482465673492959273/image.png?ex=69d8ab7f&is=69d759ff&hm=747f98178caa26a06adf69453149796c748a1db3f83daa855fb579e9ffd4325c&" />
   
 ###### heres my beautiful strawpage https://vincentwhittmanuh.straw.page
 <p align="center">
