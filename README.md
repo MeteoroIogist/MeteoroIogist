@@ -11,7 +11,9 @@
 
 #     
 <p align="center">
-<img width="700" height="600"alt="image_2026-04-16_161449671" src="https://github.com/user-attachments/assets/f9f87a04-76a4-4e8a-b479-fe5cc1add191" />
+<img width="600" height="300" alt="image_2026-04-20_004846048" src="https://github.com/user-attachments/assets/62e7d0a3-2ad3-4452-bce4-76b1d6bae214" /> 
+
+*very wide coked up vincent TY MOZZ HES BEAUTIFUL*
   
 ###### heres my beautiful strawpage https://vincentwhittmanuh.straw.page
 <p align="center">
