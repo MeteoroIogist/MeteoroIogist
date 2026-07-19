@@ -9,3 +9,4 @@ I have stml
     melanie martinez/sabrina carpenter/taylor swift supporters or listeners, self diagnosers
       
     thin ice: 13-14, dandys world fans, forsaken fans, trolls, RADIOAPPLE FANS, polyvees......
+@meteorological. on discord
