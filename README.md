@@ -14,6 +14,6 @@ I have stml
     self diagnosers, problematic ships
       
     thin ice: 13-14, dandys world fans, forsaken fandom, trolls, radioapple/radioapple fans, 
-    ai supporters
+     ai supporters
 
 @meteorological. on discord
