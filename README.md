@@ -13,5 +13,5 @@ I have stml
     melanie martinez/sabrina carpenter/pixel drink/taylor swift supporters or listeners, 
     self diagnosers, problematic ships
       
-    thin ice: 13-14, dandys world fans, forsaken fandom, trolls, radioapple/radioapple fans
+    thin ice: 13-14, dandys world fans, forsaken fandom, trolls, radioapple/radioapple fans, ai supporters
 @meteorological. on discord
