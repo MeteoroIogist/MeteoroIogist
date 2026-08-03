@@ -1,5 +1,7 @@
 <p align="center">
-entp
+entp, he/they/pup
+<p align="center">
+Omnisexual, genderflux
 <p align="center">
 I am vincent whittman
 <p align="center">
