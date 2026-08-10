@@ -1,7 +1,7 @@
 <p align="center">
 entp, he/him
 <p align="center">
-genderflux
+transmasc
 <p align="center">
 I am vincent whittman
 <p align="center">
